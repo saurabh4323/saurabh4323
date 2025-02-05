@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @saurabh4323
+- 👋 Hi, I’m SAURABH SINGH (saurabh4323)
 
 
 ## 🌐 Socials:
